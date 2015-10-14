@@ -1,0 +1,1 @@
+http://presentations-thesteve0.rhcloud.com/comparespatial/
